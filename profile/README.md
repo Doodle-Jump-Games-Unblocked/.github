@@ -4,6 +4,8 @@
 
 Get ready for an **epic vertical adventure** in **Doodle Jump**, the legendary arcade game that’s **crazy addictive** and **hyper casual**! Whether you’re a seasoned gamer or just looking for a quick burst of fun, Doodle Jump delivers endless action, quick reflex challenges, and **unblocked gameplay** that you can enjoy anywhere—even on school computers!
 
+## <a href="https://1kb.link/eqRmJM">👉 Click To Play Doodle Jump Unblocked Games 👈</a>
+
 ---
 
 ### **Why Doodle Jump is So Popular**
